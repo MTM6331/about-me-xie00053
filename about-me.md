@@ -1,3 +1,14 @@
 # what I did in this summer
 ## by Li Xie
-This summer I started my co-op
+
+
+
+what I did in this summer
+
+
+
+
+
+
+
+blablabal
